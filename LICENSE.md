@@ -1,4 +1,4 @@
-# 
+# Profesional Krita efectos para Mac OS | Personalizado Krita efectos para PC Windows. Con mezclador de canales y kit de marca — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
